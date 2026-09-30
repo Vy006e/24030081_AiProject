@@ -1,0 +1,4 @@
+- Họ và tên: Vy
+- Chuyên ngành: Khoa Truyền thông số
+- Kỹ năng: Vẽ
+- Mục tiêu nghề nghiệp: biên tập viên
